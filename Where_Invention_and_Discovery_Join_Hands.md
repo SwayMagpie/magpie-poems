@@ -7,7 +7,9 @@ It may have been a tool—
 something life once invented simply to keep itself alive.
 
 To line up changes.
+
 To anticipate what comes next.
+
 To hold the thread of existence together.
 
 But that invention was used for so long,
